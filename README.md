@@ -1,2 +1,2 @@
 # TearOfMiso
-Tear of Miso
+Tear of Miso the darkest miso
